@@ -113,3 +113,22 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Apple Brown Betty
+
+Ingredients:
+- 4 cups thinly sliced apples (about 2 apples)
+- 1/4 cup of orange 
+- 3/4 cup all-purpose flour
+- 1 cup granulated sugar
+- 1/2 teaspoon ground cinnamon
+- 1/4 teaspoon ground nutmeg
+- A pinch of salt
+- 1/2 cup cold butter, cut into cubes
+
+Instructions:
+1. Preheat oven to 375 degrees Fahrenheit. Grease a 9-inch pie plate.
+2. Pile apples in the pie plate and drizzle with orange juice to avoid browning.
+3. In a medium bowl, combine flour, sugar, cinnamon, nutmeg, and salt. Stir in the butter until the mixture turns into coarse crumbs.
+4. Sprinkle the crumbs all over the apples.
+5. Bake for 45 minutes. Let cool slightly before serving. Enjoy!
